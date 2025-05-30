@@ -40,7 +40,7 @@ Kami menawarkan berbagai jasa untuk membantu kamu menyelesaikan tugas akademik d
 
 Untuk informasi lebih lanjut atau pemesanan, silakan hubungi kami melalui WhatsApp:
 
-👉 [wa.me/082269895816](https://wa.me/082269895816)
+👉 [wa.me/+6282269895816](https://wa.me/+6282269895816)
 
 Atau kunjungi situs web kami di [rafaofficial.github.io](https://rafaofficial.github.io) untuk melihat layanan lengkap dan testimoni pelanggan.
 
